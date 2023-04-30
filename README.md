@@ -1,0 +1,1 @@
+# scade_privacy_policy
